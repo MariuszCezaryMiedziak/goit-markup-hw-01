@@ -1,0 +1,1 @@
+Zadanie wykonane według instrukcji podanych na stronie!!!
